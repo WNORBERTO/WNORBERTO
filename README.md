@@ -2,8 +2,8 @@
 - 👀 I’m interested in ..aprender de la ia.
 - 🌱 I’m currently learning ...como hacer videos para canciones y reels
 - 💞️ I’m looking to collaborate on ...hacer videos
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me ...will79633@hotmail.com
+- 😄 Pronouns: ...wnorberto
 - ⚡ Fun fact: ...
 
 <!---
